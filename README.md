@@ -1,0 +1,2 @@
+# SULULTA_SECONDERY--SCHOOL
+school
